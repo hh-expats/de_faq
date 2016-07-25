@@ -14,4 +14,4 @@
 
 # Общение
 
-*comming soon*
+- https://join.skype.com/hlbpogZmVwcT - скайп группа
